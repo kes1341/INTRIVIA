@@ -10,3 +10,6 @@ Menurutku INTRIVIA sejauh ini ada bagian yang seru sama ada bagian yang biasa aj
 
 ## Kesan Pesan Cluster 16 Sejauh Ini 
 Cluster 16 itu orang-orangnya seru semua, bisa diajak ngobrol sama kerja sama
+
+## Harapan Kuliah 
+Bisa mendapatkan ilmu dan kemampuan yang diperlukan untuk nanti di masa depan
